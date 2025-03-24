@@ -1,1 +1,0 @@
-# quinde-project
